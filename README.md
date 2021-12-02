@@ -1,0 +1,2 @@
+# mosi
+i am traider
